@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @santhegammerz
-- 👀 I’m interested in Game Development & 3D Modelling
+- 😎 Me 16 but My Brain 18
+- 👀 I’m interested in Game Development & Web Development
 - 🌱 I’m currently learning Unreal Engine 4
 - 📫 How to reach me Discord: SantheGammerz#2607
 
